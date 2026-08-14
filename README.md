@@ -26,7 +26,7 @@ O objetivo deste site é facilitar o contato dos clientes e direcionar os pedido
 
 ## 📱 Contato
 
-Instagram: @frangows
+Instagram: @frango_ws_assados
 
 WhatsApp: Atendimento direto pelo site
 
